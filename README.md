@@ -1,3 +1,2 @@
-- 👀 I’m interested in hamburgers.
-- 🌱 I’m currently learning...
-
+- 👀 I love hamburgers with veges.
+- 🌱 I'm currently learning 
