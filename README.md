@@ -1,1 +1,1 @@
-👀 I do love hamburgers with veges.
+I do love hamburger with veges.👀🍔  
