@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Dan Lyton</h1>
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">still working on secret studies.💬</h3>
 <p align="left">
 </p>
 
